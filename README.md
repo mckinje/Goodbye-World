@@ -2,3 +2,4 @@
 It's been so long in coming
 It's time to move it along
 down the august path in time
+Forever is lonely word
